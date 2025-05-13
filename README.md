@@ -1,4 +1,4 @@
-# Tradingview-Premium-Cracked-
+# Tradingview-Premium-Cracked
 📈 TradingView Premium Crack [Full Version] 📉
 
 ## Installation
